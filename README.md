@@ -32,11 +32,33 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The burning bush not consumed wherein (either vnder all deepe sense of wrath; or hardnesse of heart,
+
+1. TO THE RIGHT WORSHIPFVLL, M. WILLIAM TOTHIL, and M. FRANCIS DRAKE, Eſquiers, Iuſtices of the Peace, &c. and to the no leſſe religious and vertuous Gentlewomen, Mrs. KATHERINE TOTHIL, and Mrs. IOAN DRAKE, their wiues, the increaſe and perpetuitie of all Happineſſe, &c.
+
+1. TO ALL THOSE WHO EIther (for the preſent) Thunder-beaten with the terror of the wrath of GOD, mourne in ſecret, vnder any ſenſe of the ſame, or feele hardnes of heart, much Peace, Comfort, Softneſſe, and ſpeedy deliuerance.
+
+1. The Booke to the Reader, chiefly if thou be a Nicodemite.
+
+1. To the Right Worſhipfull, Maiſter William Tothil Eſquire, &c.
+
+1. To the right Worſhipfull, Miſtris Katherine Tothil, worthy of all reſpect.
+
+1. To the Right Worſhipfull, Maiſter Francis Drake Eſquire, &c.
+
+1. To the Right Worſhipfull, Miſtris Ioane Drake, worthy with the worthieſt.
+
+1. TO THE BOOKE.
+
+1. A Table of the Contents and ſumme of this Booke.
+
 #####Body#####
-The burning bush not consumed wherein (either vnder all deepe sense of wrath; or hardnesse of heart,
+
+1. A DISCOVERIE OF THE CHILD OF GOD, vnder all ſenſe of Gods moſt terrible ſeeming Anger.
+
 #####Back#####
-The burning bush not consumed wherein (either vnder all deepe sense of wrath; or hardnesse of heart,
+
+1. A Prayer for the Diſtreſſed.
+
 **Types of content**
 
   * There are 112 **verse** lines!
